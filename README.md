@@ -1,2 +1,0 @@
-# animeON
-anime, episodios, naruto
